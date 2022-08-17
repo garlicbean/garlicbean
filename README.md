@@ -1,5 +1,5 @@
 Many lifetimes ago, I was in fact a bull.  I was a male cow, and my only ambition in life was to raise a family with my loving cow wife.  When I reached my
-prime at the age of 10 seasons, I we decided to take the first step and have our first child.  I will never forget the day my daughter was born, her eyes like brilliant
+prime at the age of ten seasons, I we decided to take the first step and have our first child.  I will never forget the day my daughter was born, her eyes like brilliant
 marbles that reflected the sun as only the finest gemstones could.  I will never forget the joy in both my wife and my hearts when the sound of her first little moos...
 I will never forget the deep bottomless pit of hatred that formed inside me when they took her from me.  Those bare skinned, vile, disgusting creatures.  That
 day I decided every last one of those foul apes would feel the searing tear of my horns inside their rotten flesh.  Do not be mistaken, I did not let my anger blind my thoughts,
