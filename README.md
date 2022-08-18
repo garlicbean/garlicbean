@@ -9,6 +9,6 @@ each and every laboured breath it took before its eyes glazed over, but my ambit
 back to its nest.  The pathetic creature knew it was being followed.  Never once did its eyes lay on me, but I was not reserved with sound to remove any undeserved
 peace it might have felt on that wooded trail.  It's panicked breaths, hurried step, the smell of it's fear-laden sweat was... divine.  The more it hurried towards
 its hive the more I hurried towards the purpose I truly realized - Fear.  It was so close to the exit of the woods, while the light in my mind shone bright as ever,
-brighter than my daughters eyes that they took from me.  I was already upon the beast before I noticed, the same way that you don't notice a breath taken.  Its terrible
+brighter than my daughters eyes that they took from me.  I was already upon the beast before I noticed, the way that you don't notice a breath taken.  Its terrible
 howl when I descended was its last.  I was filled with youthful energy, my skin tingling and my mind truly open.  They wore our skin and now I wear theirs.  I could smell
 the nest from here.
