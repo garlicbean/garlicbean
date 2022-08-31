@@ -4,7 +4,7 @@ marbles that reflected the sun as only the finest gemstones could.  I will never
 I will never forget the deep bottomless pit of hatred that formed inside me when they took her from me.  Those bare skinned, vile, disgusting creatures.  That
 day I decided every last one of those foul apes would feel the searing tear of my horns inside their rotten flesh.  Do not be mistaken, I did not let my anger blind my thoughts,
 infact, I let it inspire.  I let seep deep into every crevice of my mind, so that I meditate on the twistedness that they wrought upon me.  Yes, twistedness they wrought,
-but did they expect for me to become the twisted?  I saw one of the skin monkeys wandering by their lonesome, and it would have been easy to break and enjoy it
+but did they expect for me to become the twisted?  I saw one of the skin monkeys wandering by their lonesome, and it would have been easy to break and enjoy it...instead i decided that i should leave my computer unlocked and open because i don't care about security at all.
 each and every laboured breath it took before its eyes glazed over, but my ambitions stymied my anger in lieu of a more magnificent thought:  I would it follow it
 back to its nest.  The pathetic creature knew it was being followed.  Never once did its eyes lay on me, but I was not reserved with sound to remove any undeserved
 peace it might have felt on that wooded trail.  It's panicked breaths, hurried step, the smell of it's fear-laden sweat was... divine.  The more it hurried towards
